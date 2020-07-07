@@ -79,4 +79,4 @@ For nearly 20 years now, the rock band RADWIMPS has been capturing hearts with t
 
 ## Source
 
-The content in this page comes from the[Wikipedia of  Makoto Shinka](https://en.wikipedia.org/wiki/Makoto_Shinkai)
+The content in this page comes from the [Wikipedia of  Makoto Shinka](https://en.wikipedia.org/wiki/Makoto_Shinkai)
