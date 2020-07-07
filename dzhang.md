@@ -77,6 +77,6 @@ For nearly 20 years now, the rock band RADWIMPS has been capturing hearts with t
 * [Taylor-Foster, Kim(14 January 2020).](https://www.fandom.com/articles/your-name-jj-abrams-remake)"'Your Name' Creator Is Approving Scripts For JJ Abrams Remake". Fandom. Retrieved 16 January 2020.
 * ["The Anime Master of Missed Connections Makes Strong Contact in Japan".](https://www.nytimes.com/2016/12/04/movies/the-anime-master-of-missed-connections-makes-strong-contact-in-japan.htm)Rich, Motoko (2016-12-04).The New York Times. Archived from the original on 2018-08-11. Retrieved 2018-08-10.
 
-## Source
+## Sources
 
 The content in this page comes from the [Wikipedia of  Makoto Shinka](https://en.wikipedia.org/wiki/Makoto_Shinkai)
